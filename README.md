@@ -1,1 +1,1 @@
-# negocios.inteligentes
+https://felipemacahdo.github.io/negocios.inteligentes/.
